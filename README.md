@@ -1,5 +1,3 @@
-CHUKWUMA / README.md
-
 Hi there 👋, I'm Chukwuma Ezeobika
 
 A software engineer who is passionate about collaborating with great teams in building tech products that help businesses to be more efficient and provide a better service to the public.
