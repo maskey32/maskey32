@@ -8,7 +8,7 @@ A software engineer who is passionate about collaborating with great teams in bu
 
 - 👯 I’m looking to collaborate on open source projects, and potential startup ideas.
 
-- 📫 How to reach me chukwuma.ezeobika1@gmail.com
+- 📫 How to reach me mezeobika32@gmail.com
 
 - 📄 Know about my experiences https://docs.google.com/document/d/1_hhyBIa2hzrMwNYUSqxE1gvWS-txheRUhefSdEqGRx4/edit#heading=h.nb0o6mg8842d
 
