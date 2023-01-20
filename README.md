@@ -10,6 +10,5 @@ A software engineer who is passionate about collaborating with great teams in bu
 
 - 📫 How to reach me mezeobika32@gmail.com
 
-- 📄 Know about my experiences https://docs.google.com/document/d/1_hhyBIa2hzrMwNYUSqxE1gvWS-txheRUhefSdEqGRx4/edit#heading=h.nb0o6mg8842d
-
+- 📄 Know about my experiences https://docs.google.com/document/d/1IrF49qodxaInfXnkw4L29c82dpUjUlN2lzKt1BopNU8/edit#
 - ⚡ Fun fact When I'm not coding, I simply enjoy singing or listening to music. I love to do research, and travel so as to learn new things; gain new experiences, meet new people and make memories that will last a life time.
